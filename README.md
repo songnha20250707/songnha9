@@ -22,4 +22,4 @@
 
 本站支持在线播放和磁力下载链接，让您根据需求选择合适的观看方式。无论是在线播放，还是下载到本地，您的观看需求我们都能满足。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/songnha20250707/songnha9 ）</span>
